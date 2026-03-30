@@ -1,1 +1,1 @@
-rentry.co/yumevarka for byi
+https://rentry.co/yumevarka for byi
