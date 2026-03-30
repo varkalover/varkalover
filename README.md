@@ -1,1 +1,1 @@
-![yumevarka](https://rentry.co/yumevarka) for byi
+rentry.co/yumevarka for byi
